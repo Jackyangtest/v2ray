@@ -5,6 +5,10 @@
 - 全球众多节点，8K不卡顿。
 - 解锁奈飞、迪士尼、TikTok 、ChatGPT。
 - 推荐新加坡节点解锁 NETFLIX TVB HKTV VIUTV。
+- 小火箭美区账号
+- https://id.cloudsides.com/share/x3M4ms7egc
+- 密码
+- 004005
 
 
 v2ray免费节点订阅:
