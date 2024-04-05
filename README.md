@@ -4,8 +4,8 @@
 
 - 全球众多节点，8K不卡顿。
 - 解锁奈飞、迪士尼、TikTok 、ChatGPT。
-- 流量不虚标，所有节点都是1倍率。
-- 不限登陆设备数，不设置每日封顶流量。
+- 推荐新加坡节点解锁 NETFLIX TVB HKTV VIUTV。
+
 
 v2ray免费节点订阅:
 https://7.52vpn.xyz/link/NbeQl7Ks8B4Dp2RZ?sub=3&extend=1
