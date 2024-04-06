@@ -15,5 +15,5 @@
 - 004005
 
 
-v2ray免费节点订阅:
+v2ray免费节点订阅
 - `https://7.52vpn.xyz/link/NbeQl7Ks8B4Dp2RZ?sub=3&extend=1`
